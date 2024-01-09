@@ -1,3 +1,5 @@
+bruh thats a shame i have to keep this public
+
 # Philomena
 ![Philomena](/assets/static/images/phoenix.svg)
 
